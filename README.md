@@ -1,2 +1,3 @@
 🍞  
-<video src="trivia/窩不知道.mov" controls autoplay>窩知道了</video>  
+
+https://user-images.githubusercontent.com/31535588/177047579-d8432bbe-dd97-42bc-9a59-9369ebc30b78.mov  
