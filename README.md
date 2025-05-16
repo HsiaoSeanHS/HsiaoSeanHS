@@ -1,4 +1,4 @@
-![](https://count.getloli.com/get/@hsiaoseanhs?theme=rule34.xxx)
+![](https://count.getloli.com/get/@hsiaoseanhs?theme=rule34.xxx)  
 🍞從入門到放棄，就是如此簡單🍞  
 🍞It’s simple to go from getting started to giving up.🍞
 
